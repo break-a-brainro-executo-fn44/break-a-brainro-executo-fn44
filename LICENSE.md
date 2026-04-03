@@ -1,4 +1,4 @@
-
+Free top attack on titan revolution Scripts | spd + tele brings you the best free scripts for attack on titan revolution, featuring spd and tele. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
